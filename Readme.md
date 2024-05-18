@@ -31,6 +31,7 @@ Rangpur Goverment Collage <hr>
 
 
 _Thanks for going through my Portfolio. All rights reserved by Rayhan @2024_
+This is Md Rayhan Prortfullio.I also add more information about me and Study after 6 month
 
 
 
